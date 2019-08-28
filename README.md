@@ -1,0 +1,1 @@
+# basit-ML-ornegi
